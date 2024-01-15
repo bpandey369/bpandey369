@@ -21,7 +21,7 @@ I'm on the lookout for opportunities to apply my skills in a dynamic machine lea
 
 I'm always open to connecting with fellow enthusiasts, industry professionals, and anyone passionate about the intersection of technology and intelligence. Let's learn and grow together:
 
-- 📧 **Email**: pandeybhagat369@gmail.co
+- 📧 **Email**: pandeybhagat369@gmail.com
 - 📷 **LinkedIn**: [My LinkedIn Profile](www.linkedin.com/in/bhagat-pandey-1b18a2271)
 
 
